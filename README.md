@@ -1,0 +1,2 @@
+# jomblo
+CUMAN ANAK BIASA 
